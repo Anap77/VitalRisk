@@ -1,1 +1,0 @@
-ola yesi soy tu amiga ana 
